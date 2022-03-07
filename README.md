@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Priyankathunduri
+- 👋 Hi, I’m @Priyanka thunduri
 - 👀 I’m interested in coding
 - 🌱 
 
